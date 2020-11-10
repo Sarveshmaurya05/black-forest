@@ -1,0 +1,1 @@
+This recipe delivers a classic version of the original Black Forest cake with whipped cream frosting and sour cherries.
